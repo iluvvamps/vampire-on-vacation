@@ -14,4 +14,4 @@ this account is mostly for pony town shittypants
 
 usually hangout below the bakery ( the other Dandy's world area ) or several pixels away southwest from spawn ( homestuck area } OR LITERALLY ANYWHERE IN PONYTOWN.
 
-please be friends with me. 
+please be friends with me.
